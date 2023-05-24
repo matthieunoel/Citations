@@ -5,3 +5,4 @@
 - "Dans la vie il y a deux types de personnes : ceux qui sont riches et ceux qui pleurent." 16/05/2022 Hugo.L
 - "Arrêtes, tu vas pourrir la carte ..." Matthieu, "Borf, pas autant que l'avenir de Cyril !" 29/22/2022 Thomas. C
 - "Relford, c'est un peu notre Mamadou à nous" 22/05/2022 Thomas. C
+- "Toc toc toc ..." "Qui es là ?" "Miguel !" "Miguel comment ?" "MIGUEL OUDAIO (NIGERUNDAYO) !" 24/05/2023 Matthieu. N
